@@ -226,4 +226,4 @@ Endless Sky is offered as a full free version with all features and updates incl
 Ready to embark on your interstellar adventure? **Download Endless Sky for free today and start exploring the universe!**
 
 ---
-**Last updated:** 2026-09-17 01:14:54 UTC
+**Last updated:** 2026-09-17 07:29:01 UTC
